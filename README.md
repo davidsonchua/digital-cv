@@ -36,7 +36,10 @@ _Honors and Awards_
 ## Side Projects
 
 **Creative Writing** @ [Medium](https://medium.com/@davidsonchua) // _Jun 20 - Present_
- {TBC From Here... Under Construction}
+
+
+
+{TBC From Here... Under Construction}
 
 ### Header 3
 
