@@ -1,5 +1,5 @@
 # Davidson Chua 
-**Student at National University of Singapore // Bachelor of Science (Honours), Business Analytics**
+**Student at National University of Singapore // _Bachelor of Science (Honours), Business Analytics_**
 
 [Email](davidson99here@gmail.com) / [Website](https://davidsonchua.super.site) / [LinkedIn](https://www.linkedin.com/in/davidsonchua/) / [GitHub](https://github.com/davidsonchua) / [Telegram](https://github.com/davidsonchua) 
 
@@ -22,22 +22,24 @@
 
 **Bachelors Degree** @ [NUS](https://www.comp.nus.edu.sg/programmes/ug/ba/) // _Aug 22 - Present_
 
-(To be Updated) 
+_Bachelor of Science (Honours), Business Analytics_
 
 **Diploma** @ [SP](https://www.sp.edu.sg/sma/courses/full-time-diplomas/marine-engineering/overview) // _Apr 17 - Apr 20_ // _CGPA: 3.92_ 
 
-_Honors and Awards_ 
-- [Singapore Polytechnic Director's Honor Roll 2018](https://drive.google.com/file/d/1OyCJqEId13DK6jgWYUotHWCSHkb1B1uF/view?usp=sharing)
-- [Singapore Polytechnic Director's Honor Roll 2019](https://drive.google.com/file/d/1wJjybAEKz4aASSXaCjtKwQLKflGn4qwU/view?usp=sharing)
-- [British Petroleum Cadet Sponsorship](https://www.bp.com/en/global/corporate/careers/students-and-graduates/locations/singapore/shipping-cadets/singapore-engineer-cadet.html)
-- [Sembcorp Marine Prize](https://drive.google.com/file/d/1jzdOpuuNtjLDE9wrzRD-ujBASDxorc9o/view?usp=sharing)
-- [Keppel Marine & Offshore Prize](https://drive.google.com/file/d/1TD7HVmlbvZMQTfRrJVEZDacSeA6D4m5k/view?usp=sharing)
+[_Diploma(with Merit) in Marine Engineering_](https://drive.google.com/file/d/1imqqFeJT__rFxva2j_mw_0oUHwM8yPn8/view?usp=sharing)
 
 ## Side Projects
 
 **Creative Writing** @ [Medium](https://medium.com/@davidsonchua) // _Jun 20 - Present_
 
+## Honors and Awards 
 
+- [Singapore Polytechnic Director's Honor Roll 2018](https://drive.google.com/file/d/1OyCJqEId13DK6jgWYUotHWCSHkb1B1uF/view?usp=sharing)
+- [Singapore Polytechnic Director's Honor Roll 2019](https://drive.google.com/file/d/1wJjybAEKz4aASSXaCjtKwQLKflGn4qwU/view?usp=sharing)
+- [British Petroleum Cadet Sponsorship](https://www.bp.com/en/global/corporate/careers/students-and-graduates/locations/singapore/shipping-cadets/singapore-engineer-cadet.html)
+- [Sembcorp Marine Prize](https://drive.google.com/file/d/1jzdOpuuNtjLDE9wrzRD-ujBASDxorc9o/view?usp=sharing)
+- [Keppel Marine & Offshore Prize](https://drive.google.com/file/d/1TD7HVmlbvZMQTfRrJVEZDacSeA6D4m5k/view?usp=sharing)
+- [National Cadet Corps Outstanding Cadet Award AY2015/16](https://drive.google.com/file/d/1oDTqI-3qkGICcQECDYYlDFsN5XZODUr1/view?usp=sharing)
 
 {TBC From Here... Under Construction}
 
