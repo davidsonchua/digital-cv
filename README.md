@@ -36,7 +36,7 @@ _Bachelor of Science (Honours), Business Analytics_
 
 - [Singapore Polytechnic Director's Honor Roll 2018](https://drive.google.com/file/d/1OyCJqEId13DK6jgWYUotHWCSHkb1B1uF/view?usp=sharing)
 - [Singapore Polytechnic Director's Honor Roll 2019](https://drive.google.com/file/d/1wJjybAEKz4aASSXaCjtKwQLKflGn4qwU/view?usp=sharing)
-- [British Petroleum Cadet Sponsorship](https://www.bp.com/en/global/corporate/careers/students-and-graduates/locations/singapore/shipping-cadets/singapore-engineer-cadet.html)
+- [British Petroleum Cadet Sponsorship](https://www.bp.com/content/dam/bp/business-sites/en/global/corporate/pdfs/careers/careers-cadet-brochure-2021.pdf)
 - [Sembcorp Marine Prize](https://drive.google.com/file/d/1jzdOpuuNtjLDE9wrzRD-ujBASDxorc9o/view?usp=sharing)
 - [Keppel Marine & Offshore Prize](https://drive.google.com/file/d/1TD7HVmlbvZMQTfRrJVEZDacSeA6D4m5k/view?usp=sharing)
 - [National Cadet Corps Outstanding Cadet Award AY2015/16](https://drive.google.com/file/d/1oDTqI-3qkGICcQECDYYlDFsN5XZODUr1/view?usp=sharing)
