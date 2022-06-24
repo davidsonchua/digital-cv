@@ -39,6 +39,7 @@ _Bachelor of Science (Honours), Business Analytics_
 - [British Petroleum Cadet Sponsorship](https://www.bp.com/content/dam/bp/business-sites/en/global/corporate/pdfs/careers/careers-cadet-brochure-2021.pdf)
 - [Sembcorp Marine Prize](https://drive.google.com/file/d/1jzdOpuuNtjLDE9wrzRD-ujBASDxorc9o/view?usp=sharing)
 - [Keppel Marine & Offshore Prize](https://drive.google.com/file/d/1TD7HVmlbvZMQTfRrJVEZDacSeA6D4m5k/view?usp=sharing)
+- [Edusave Skills Award 2021](https://drive.google.com/file/d/1br_F1y45eCfENoe4T0mRDo82TL2TLsIw/view?usp=sharing)
 - [National Cadet Corps Outstanding Cadet Award AY2015/16](https://drive.google.com/file/d/1oDTqI-3qkGICcQECDYYlDFsN5XZODUr1/view?usp=sharing)
 
 {TBC From Here... Under Construction}
