@@ -31,7 +31,9 @@ _Bachelor of Science (Honours), Business Analytics_
 ## Side Projects
 
 **Creative Writing** @ [Medium](https://medium.com/@davidsonchua) // _Jun 20 - Present_
+
 **Content Creative** @ [Creatory](https://creatory.hyphengroup.io/landingpage/index)// _Jul 22 - Present_ 
+
 ## Honors and Awards 
 
 - [Singapore Polytechnic Director's Honor Roll 2018](https://drive.google.com/file/d/1OyCJqEId13DK6jgWYUotHWCSHkb1B1uF/view?usp=sharing)
