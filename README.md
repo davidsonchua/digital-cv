@@ -32,7 +32,7 @@ _Bachelor of Science (Honours), Business Analytics_
 
 **Creative Writing** @ [Medium](https://medium.com/@davidsonchua) // _Jun 20 - Present_
 
-**Content Creative** @ [Creatory](https://creatory.hyphengroup.io/landingpage/index)// _Jul 22 - Present_ 
+**Content Creative** @ [Creatory](https://creatory.hyphengroup.io/landingpage/index) // _Jul 22 - Present_ 
 
 ## Honors and Awards 
 
