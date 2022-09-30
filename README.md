@@ -1,7 +1,7 @@
 # Davidson Chua 
 **Student at National University of Singapore** // _Bachelor of Science (Honours), Business Analytics_
 
-[Email](davidson99here@gmail.com) / [Website](https://davidsonchua.super.site) / [LinkedIn](https://www.linkedin.com/in/davidsonchua/) / [GitHub](https://github.com/davidsonchua) / [Telegram](https://github.com/davidsonchua) 
+[Email](< a href="mailto:john@example.com">John< /a>) / [Website](https://davidsonchua.super.site) / [LinkedIn](https://www.linkedin.com/in/davidsonchua/) / [GitHub](https://github.com/davidsonchua) / [Telegram](https://github.com/davidsonchua) 
 
 ## Work Experiences 
 
