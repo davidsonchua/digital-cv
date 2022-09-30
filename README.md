@@ -24,14 +24,14 @@
 
 _Bachelor of Science (Honours), Business Analytics_
 
-**Diploma** @ [SP](https://www.sp.edu.sg/sma/courses/full-time-diplomas/marine-engineering/overview) // _Apr 17 - Apr 20_ // _CGPA: 3.92_ 
+**Diploma** @ [SP](https://www.sp.edu.sg/sma/courses/full-time-diplomas/marine-engineering/overview) // _Apr 17 - Apr 20_ // _CGPA: 3.92/4.00_ 
 
 [_Diploma(with Merit) in Marine Engineering_](https://drive.google.com/file/d/1imqqFeJT__rFxva2j_mw_0oUHwM8yPn8/view?usp=sharing)
 
 ## Side Projects
 
 **Creative Writing** @ [Medium](https://medium.com/@davidsonchua) // _Jun 20 - Present_
-
+**Content Creative** @ [Creatory](https://creatory.hyphengroup.io/landingpage/index)// _Jul 22 - Present_ 
 ## Honors and Awards 
 
 - [Singapore Polytechnic Director's Honor Roll 2018](https://drive.google.com/file/d/1OyCJqEId13DK6jgWYUotHWCSHkb1B1uF/view?usp=sharing)
